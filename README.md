@@ -16,6 +16,6 @@ Experience the joy of learning about aquatic life like never before! Dive into t
 To get started, simply invite our bot or visit our website below:
 Invite the FishWiki Bot!  
 - [Click here to add our bot!](https://top.gg/bot/993620063288578088/invite)  
-- [Click here to visit our site!](https://fishwiki.org/) - COMING SOON
+- [Click here to visit our site!](https://fishwiki.org/)
 
 Join FishWiki today and embark on an educational journey that will deepen your love for all things aquatic! 🐠💙
